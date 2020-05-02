@@ -19,6 +19,6 @@ Education
 
 Work experience
 ======
-
+Please see the pdf version for more details.
   
 
